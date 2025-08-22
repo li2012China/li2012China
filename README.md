@@ -14,8 +14,7 @@
 - 🌱 I’m currently learning how to using AI to make better projects
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Bilibili/@li2012China
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 I AM A NOOB!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
 <!---
 li2012China/li2012China is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
