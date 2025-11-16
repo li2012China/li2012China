@@ -16,6 +16,8 @@
 - 📫 How to reach me: Bilibili/@li2012China
 - 😄 I AM A NOOB!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
+## Donate
+ - [爱发电](https://afdian.com/a/li2012China)
 <!---
 li2012China/li2012China is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
